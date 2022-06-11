@@ -1,0 +1,1 @@
+The content of my week4 assignment that I did within the scope of Picus Cybersecurity Academy is available here.
